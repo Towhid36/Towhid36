@@ -11,7 +11,8 @@
 
 - 📫 How to reach me
 - Email: **mohammadtowhid111@gmail.com**
-- Linkdedin: https://www.linkedin.com/public-profile
+- Linkedin: **https://www.linkedin.com/in/towhid36/**
+- Facebook: **https://www.facebook.com/towhidhossain111/**
 
 
 <p align="left">
